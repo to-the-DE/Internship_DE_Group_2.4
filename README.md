@@ -1,1 +1,1 @@
-# Internship_DE_Group_2.4
+1. Наша команда `Internship_DE_Group_2.4`
